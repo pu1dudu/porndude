@@ -6,7 +6,7 @@
 啪嘟porndude的海外永久地址：porndude.lol     /    porn-dude.net
 
 
-啪嘟porndude的最新国内访问地址：hs99.cc
+啪嘟porndude的最新国内访问地址：hs99.cc      /    hs69.tv          (更新至4月）
 
 
 
